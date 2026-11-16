@@ -1,0 +1,1 @@
+# Pasta-de-BIOS-e-ISOs---PCSX2
